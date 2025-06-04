@@ -1,1 +1,0 @@
-# agrilease-ai
